@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ameya-Khandekar
-- 🌱 I’m currently pursuing Masters in Cyber Security from Dublin, Ireland
+- 🌱 Msc in Cybersecurity
 - 📫 Connect with me on https://www.linkedin.com/in/ameya-khandekar28/
 
 <!---
