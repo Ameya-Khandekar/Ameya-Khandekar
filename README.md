@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ameya-Khandekar
+- 👋 Hi, I’m Ameya
 - 📜 Msc in Cybersecurity
 - 💼 Connect with me on https://www.linkedin.com/in/ameya-khandekar28/
 
